@@ -1,4 +1,4 @@
-# Education courses report — text edition
+# Education courses report: text edition
 
 Text extracted from Joana’s original Word report. Original wording and historical figures are preserved; chart layouts are available in the downloadable documents. This is not a newly verified analysis.
 
